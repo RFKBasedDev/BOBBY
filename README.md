@@ -1,1 +1,1 @@
-# RFKJ
+# Kennedy Coin ($BOBBY)
